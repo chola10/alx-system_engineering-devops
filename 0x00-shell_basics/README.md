@@ -1,1 +1,1 @@
-Task 19. File type: School
+Task 19. File type: Schoo
